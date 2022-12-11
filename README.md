@@ -1,1 +1,0 @@
-# GiorgiPeleKordzaia.github.io
